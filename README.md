@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Gabriel Rocha 😁
+## Bem-vindo ao perfil de Gabriel Rocha 😁
 
  <div>
    <a href="https://github.com/Gabrieel-Rocha">
